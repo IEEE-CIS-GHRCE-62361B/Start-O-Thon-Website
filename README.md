@@ -1,1 +1,1 @@
-# Start-o-Thon-Website
+# Start-O-Thon-Website
